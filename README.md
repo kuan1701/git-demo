@@ -18,6 +18,11 @@ Thanks for your attention.
 
 Следующая статья, которую стоит прочесть - [Командная работа без путаницы: разбираем стратегии ветвления в Гите](https://javarush.ru/groups/posts/2693-komandnaja-rabota-bez-putanicih-razbiraem-strategii-vetvlenija-v-gite)
 
-Спасибо Вам огромное за внимание!!!!
-Спасибо Вам огромное за внимание!!!!
-Спасибо Вам огромное за внимание!!!!
+ofweufwefnweNFWEf
+ewfowefuwefbwef
+ewfw3fdefdwef
+12324323
+984t7rfgueibjdckanxjOKPIIHOUD
+37432754723
+wqewfrgtyuytre
+Огромное Вам огромное за внимание!!!!
